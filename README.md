@@ -1,1 +1,1 @@
-# projekty
+# moje projekty z uczelni
